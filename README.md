@@ -1,0 +1,1 @@
+# stratagemgis.github.io
